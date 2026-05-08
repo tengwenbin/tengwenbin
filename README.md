@@ -1,10 +1,10 @@
 ## Hi there 👋
 
-🔭 I’m currently working on I am studying at Catholic University in Daegu
-🌱 I’m currently learning I am studying electrical engineering
-👯 I’m looking to collaborate on I hope to work with my good friend as a delivery officer for daily necessities
-🤔 I’m looking for help with I am seeking the company's help in considering how to find a job after graduation
- 📫 How to reach me: 3095105003@qq.com
+-🔭 I’m currently working on I am studying at Catholic University in Daegu
+-🌱 I’m currently learning I am studying electrical engineering
+-👯 I’m looking to collaborate on I hope to work with my good friend as a delivery officer for daily necessities
+-🤔 I’m looking for help with I am seeking the company's help in considering how to find a job after graduation
+-📫 How to reach me: 3095105003@qq.com
  
 
 
